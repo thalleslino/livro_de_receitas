@@ -27,11 +27,7 @@
   MODO DE PREPARO
 
   1. Pré-aqueça o forno a 180 ºC (temperatura média). 
-  
   2. Com um pedaço de papel toalha (ou pincel), unte com manteiga uma fôrma de bolo, com furo no meio, de 25 cm de diâmetro - tente fazer uma camada bem fina. Polvilhe com farinha e chacoalhe bem para espalhar. Bata sobre a pia para retirar o excesso. 
-  
   3. teste
-  
   4. teste
-  
-     
+  5. teste
